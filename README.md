@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @inhakii
+- 🌱 I’m currently learning Computer Engineering
+- 📫 How to reach me inaki.duenas@rai.usc.es
+- 😄 Pronouns: she/the
