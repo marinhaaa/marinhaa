@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @inhakii
+- 👋 Hi, I’m @marinhaa
 - 🌱 I’m currently learning Computer Engineering
 - 📫 How to reach me marinha.duenas@rai.usc.es
-- 😄 Pronouns: she/they
+- 😄 Pronouns: she/her
